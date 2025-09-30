@@ -42,5 +42,5 @@ This Instagram Story design can be used by:
 
 ## 🤝 Connect
 
-If you found this design useful, let’s connect on **[LinkedIn](https://www.linkedin.com/)** and collaborate on more **creative food marketing projects**.
+If you found this design useful, let’s connect on **[LinkedIn]([https://www.linkedin.com/](https://github.com/sahilcreativepro?tab=repositories))** and collaborate on more **creative food marketing projects**.
 
